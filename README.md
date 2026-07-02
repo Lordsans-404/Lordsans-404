@@ -1,3 +1,3 @@
 Hi, I'm Farros👋
-Still Learning!
-Will Keep Learning😊
+- 🌱 Still learning!
+- 💥 Building something fun
